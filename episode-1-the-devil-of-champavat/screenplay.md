@@ -130,3 +130,69 @@ JIM (V.O.)
 Three cartridges. One left. I called for the Tahsildar’s gun...
 
 FADE OUT.
+
+EXT. STREAM AND ROCK LEDGE – DAY
+
+Jim approaches the stream. The wounded tigress emerges onto a projecting rock. Jim, desperate, takes the Tahsildar’s faulty gun and fires. The shot misses the mouth, hits the paw. The tigress collapses, dead at last.
+
+UP THE HILL – CONTINUOUS
+
+Shouts from the beaters echo: “There it is on the rock! Pull it down and let us hack it to bits!”
+Jim, wary, checks the tigress, then signals for calm as the crowd surges forward, weapons raised. The ring-leader, wild with grief, brandishes a sword.
+
+RING-LEADER
+(shouting)
+This is the shaitan that killed my wife and my two sons!
+
+The crowd’s rage subsides. The ring-leader is the first to lay down his weapon.
+
+RING-LEADER (CONT’D)
+We were mad, sahib. The madness has passed. Forgive us.
+
+Jim nods. The men gently lower the tigress and carry her to an open spot. Jim examines her mouth, discovering broken canines.
+
+JIM (V.O.)
+A gunshot wound had broken her teeth. Unable to hunt her natural prey, she turned to man.
+
+EXT. HILLSIDE – DAY
+
+The villagers lash the tigress to saplings. A human chain forms. They carry her up the steep hill, singing in triumph. The Tahsildar is carried as well.
+
+EXT. RIDGE – EVENING
+
+Jim and the Tahsildar watch the villagers disappear east, still singing. Smoke rises from the gorge below, where the last victim’s rites are performed.
+
+EXT. TAHSIL COURTYARD – NIGHT
+
+A torchlit procession arrives. The tigress is laid at Jim’s feet. The villagers crowd around as Jim skins the animal, cutting the job short. A police guard is posted.
+
+EXT. CHAMPAWAT – DAY
+
+The next day, the countryside gathers. The tigress’s remains are distributed for lockets and charms. The Tahsildar gives Jim the girl’s fingers, which he later buries at Naini Tal lake.
+
+MONTAGE:
+-- The Tahsildar and elders plan a great feast and dance. Jim, exhausted, prepares to leave.
+-- Roads and paths, once deserted, fill with villagers celebrating freedom.
+
+EXT. PALI VILLAGE – DAY
+
+Jim, on horseback, stops at the hut of the dumb woman. He displays the tigress’s skin. The woman, shocked, regains her speech and calls out to the village. The children stare in wonder.
+
+JIM (V.O.)
+I do not know about shock or counter-shock. All I know is, her voice returned.
+
+Jim shares tea with the villagers, recounts the hunt, and rides on, hearing their shouts of goodwill.
+
+EXT. DABIDHURA & NAINI TAL – DAY
+
+Jim and his pony travel the long road home. A brief encounter with a leopard delays them, but they reach Naini Tal by evening.
+
+EXT. NAINI TAL – DURBAR – DAY
+
+Sir John Hewett, the Lieutenant-Governor, presents the Tahsildar with a gun and Jim’s companion with a hunting knife, both engraved.
+
+JIM (V.O.)
+The story of the Champawat man-eater ended, but her shadow would linger in Kumaon for years to come.
+
+FADE OUT.
+
